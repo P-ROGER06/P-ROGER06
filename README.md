@@ -1,5 +1,5 @@
 <p align="center">
-  <img src="https://i.ibb.co/1TLVrP3/CV-PHILIPPE-ROGER-1.png" />
+  <img src="https://i.ibb.co/zh5FL46/CV-PHILIPPE-ROGER-2.png" />
 </p>
 
 
